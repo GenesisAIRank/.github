@@ -10,6 +10,6 @@
 
 🍿 Fun fact: Our team has a diverse range of breakfast preferences! Some of us enjoy healthy options like fruits and granola, while others cannot resist a hearty plate of eggs, bacon, and toast. And of course, coffee and tea are a staple for everyone to kickstart the day with enthusiasm!
 
-🧙 Let me know if there's anything else you'd like to know or (discuss)[https://t.me/+vAz8mXsCnZ9lMTBh]
+🧙 Let me know if there's anything else you'd like to know or [discuss](https://t.me/+vAz8mXsCnZ9lMTBh)
 
 
