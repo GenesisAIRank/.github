@@ -10,6 +10,8 @@
 
 🍿 Fun fact: Our team has a diverse range of breakfast preferences! Some of us enjoy healthy options like fruits and granola, while others cannot resist a hearty plate of eggs, bacon, and toast. And of course, coffee and tea are a staple for everyone to kickstart the day with enthusiasm!
 
+👏 Currently, most communication among contributors takes place on our official tg server. Similarly, we provide a Matrix server as a more privacy-friendly alternative. You can join it to keep up with the AI development, talk with the community or even contribute something yourself. Anyone who shows genuine effort to help is welcome to our team. 
+
 🧙 Let me know if there's anything else you'd like to know or [discuss](https://t.me/+vAz8mXsCnZ9lMTBh)
 
 
